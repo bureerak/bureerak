@@ -1,4 +1,4 @@
-* 🌍  I'm based in Thailand
+* 🌍  I'm Alive in Thailand
 * ✉️  You can contact me at [pongphon\_brr@hotmail.com](mailto:pongphon_brr@hotmail.com)
 
 ### Skills
